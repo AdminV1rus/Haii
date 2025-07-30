@@ -15,4 +15,4 @@
 
 
 
-<img width="640" height="257" alt="9g3jsu" src="https://github.com/user-attachments/assets/44a6181c-00d3-49e1-be3a-dac797c58508" />
+<img width="1000" height="257" alt="9g3jsu" src="https://github.com/user-attachments/assets/44a6181c-00d3-49e1-be3a-dac797c58508" />
