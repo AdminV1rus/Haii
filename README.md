@@ -16,7 +16,7 @@
 
 ✦ ` be my friend? sure !! but please ask or let me know first cuz i don't always accept friend requests especially if its so random '^_^ lolll
 
-✦ ` HHeyy!! I LOEVV SHEDLETSKYY SO MUCHH!! hehh so... if you ever see me, maybe it will be with a shedletsky skin loll
+✦ ` HHeyy!! I LOEVV SHEDLETSKYY SO MUCHH!! hehh so... heheeh...
 
 ✦ ` Hey, i want to warn to u that I don't chat or socialize much, so I'm sorry if I make you feel bad when you're with me :<<
 
