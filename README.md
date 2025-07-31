@@ -1,16 +1,48 @@
- <img width="1000" heght="300" alt="Telamon_Shedletsky" src="https://github.com/user-attachments/assets/05abf2ee-2af1-4a5f-a516-b349fdea4791" />
-
-<img width="1090" height="275" alt="IMG-9348" src="https://github.com/user-attachments/assets/79972bd8-7576-495b-b3a7-133252b91b1b" />
+![Telamon __ Shedletsky](https://github.com/user-attachments/assets/bd6f3554-d88d-4956-bd40-4549159ef0db)
 
 
+   ✦ `  ﹌﹌﹌﹌﹌﹌˙ . ꒷ 🕯️.  ︶.˙—﹌﹌﹌﹌﹌﹌  ✦ .  
+   
+   ✦ ` ᴺᵃʰ⁻ⁿᵃʰ, ᴵ ʷᵒⁿ'ᵗ ᵇᵉ ʸᵒᵘʳ ᵐᵃⁿ ʲᵘˢᵗ ᶠᵒʳ ᵗʰᵉ ⁿⁱᵍʰᵗ. ᴴᵃ⁻ʰᵃ, ʰⁱᵗ ⁱᵗ ᶠʳᵒᵐ ᵗʰᵉ ᵇᵃᶜᵏ, ʷᵒⁿ'ᵗ ʰⁱᵗ ⁱᵗ ᵗʷⁱᶜᵉ !♬.ᐟ | HAHA! |
+   
+✦ ` Haii!!, Pt player!!!, U can call me May, | any pronouns!, Pls pls pls inttt!! if u see me!! u are free 2 c*h! hehh
+
+![SHEDLETSKY](https://github.com/user-attachments/assets/cac9f013-7dc6-46dd-a3c9-5f6e6c567d4c)
 
 
+︶︶︶︶︶︶︶︶︶︶
 
+︶."🕯️ About me ;  
 
+✦ ` be my friend? sure !! but please ask or let me know first cuz i don't always accept friend requests especially if its so random '^_^ lolll
 
+✦ ` HHeyy!! I LOEVV SHEDLETSKYY SO MUCHH!! hehh so... if you ever see me, maybe it will be with a shedletsky skin loll
 
+✦ ` Hey, i want to warn to u that I don't chat or socialize much, so I'm sorry if I make you feel bad when you're with me :<<
 
+︶︶︶︶︶︶︶︶︶︶
 
+![- - - - - 1x1x1x1 - - - - -](https://github.com/user-attachments/assets/51ef92e4-552e-4d58-81c0-a1929da46f07)
 
+                                                             ✦ .  - ︶  
+🕸️`DNI... ;
 
-<img width="1000" height="257" alt="9g3jsu" src="https://github.com/user-attachments/assets/44a6181c-00d3-49e1-be3a-dac797c58508" />
+⚔️.ᐟ Basic dni criteria (racist,proship,etc..)
+
+⚔️.ᐟ Disrespectful people who forces their beliefs on others. i have my own beliefs, can people just be respectful to eachother.
+
+⚔️.ᐟ COMPETITIONS. i hate this, don't ever say stuff like "i love (character) more than u" or "I relate to (character) more than you" etc, It's extremely triggering for me and i don't like it. !! note that of course you can like or relate to smth i do, i just dont like it turned into a competitions.
+
+︶︶︶︶︶︶︶︶︶︶
+
+![SoooAverage on x](https://github.com/user-attachments/assets/652c1104-be3d-4d2b-b47a-6a06fdb2bc48)
+
+. . . ! ✦ ` Pls Pls Pls Int me now!! 
+
+✦ ` 🕯️. Fandoms: 
+︶︶
+- Forsaken, Genshin i, Evade, HSR, etc...
+
+✦ ` ⚔️. Music:
+︶︶
+- Laufey, Asteria, 6arelyhuman, OR3O, Mitsky, etc...
