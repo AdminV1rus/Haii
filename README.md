@@ -41,7 +41,7 @@
 
 ✦ ` 🕯️. Fandoms: 
 ︶︶
-- Forsaken, Genshin i, Evade, Break In (1,2), etc...
+- Forsaken, Genshin i, Evade, Break In, etc...
 
 ✦ ` ⚔️. Music:
 ︶︶
